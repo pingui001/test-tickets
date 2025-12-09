@@ -105,3 +105,15 @@ Nicolas Porras Patiño
 gosling
 nicolasporras0910@gmail.com
 1000414068
+
+<img width="1087" height="521" alt="Captura desde 2025-12-09 13-32-38" src="https://github.com/user-attachments/assets/7137eed0-f916-45c9-9d0b-f001c2de22ee" />
+
+
+
+<img width="1087" height="521" alt="Captura desde 2025-12-09 13-33-33" src="https://github.com/user-attachments/assets/4c51306c-41dc-4e4f-b9c4-ec91f1b81fca" />
+
+
+<img width="1087" height="521" alt="Captura desde 2025-12-09 13-32-55" src="https://github.com/user-attachments/assets/25c7d06b-2905-4e5e-b866-7f36824569ab" />
+
+
+
